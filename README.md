@@ -3,4 +3,4 @@
 Andrew Carpender Mica1528
 Arnav Jain arnavjain280
 Jithin Renji (jithinrenji)
-Matthew Van Winkle (MatthewLVW) SECOND MATTHEW FOR LAB 3
+Matthew Van Winkle (MatthewLVW) Both Matthews were too chaotic. Sadly, they have been expunged from this reality.
